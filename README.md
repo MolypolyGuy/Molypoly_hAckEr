@@ -3,3 +3,9 @@
 - 🌱 I’m currently learning c++ c c# python
 - 💞️ I’m looking to collaborate on being a CEH
 - ⚡ Fun fact: I am stil a kid!
+
+*****************Every one from G4R could acess this page*****************
+
+You can learn free h***ing from this page.
+
+At last, THANKS to github for its web server. (for free!!!!)
