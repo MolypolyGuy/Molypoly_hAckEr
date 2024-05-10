@@ -10,7 +10,8 @@ You can learn free h***ing from this page.
 
 At last, THANKS to github for its web server. (for free!!!!)
 
+https://molypolyguy.github.io/MolypolyGuy/
 
-lil' JIJIJIJIJIJjg
 My website https://github.com/MolypolyGuy/MolypolyGuy/
+
 Little yangpei will be banned from this!!!!!!!!!!!!!!!!!!!
