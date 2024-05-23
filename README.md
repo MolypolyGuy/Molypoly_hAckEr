@@ -1,3 +1,7 @@
+![hacker-hacker-man](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/2dadc1bd-69c3-43ec-809d-e3bfc73f84f2)
+
+![breezy-hacker](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/a89f7edf-82ea-469f-890e-384e4b977a0e)
+
 ![bitcoin-cryptocurrency](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/fc7e5f39-8ca2-4931-8e0b-318c713a2b00)
 
 ![image](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/1570c80d-3ecc-4b50-a90e-34723a47bae8)
