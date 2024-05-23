@@ -1,5 +1,6 @@
+![image](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/1570c80d-3ecc-4b50-a90e-34723a47bae8)
+![image](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/2888e5e0-87bf-4d44-8f7e-a23f21134322)
 ![download](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/c75b5a30-fcd5-460e-ae87-04d119f551a3)
-
 - Hi, I’m Andy the hacker
 - I’m interested in Hacking and coding
 - I’m currently learning c++ c c# python
