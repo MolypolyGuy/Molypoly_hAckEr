@@ -1,5 +1,3 @@
-![pepe](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/025e01dc-ae37-451a-852f-3bc46d6bf3c5)
-
 ![linux-penguin](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/40724488-6bcb-4fca-b7b2-a5d5695779e4)
 YOU MUST CLICK IN THIS LINK BELOW
 https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/9c6e7f44-4fb1-42da-8f63-f4b45967a8bd
@@ -12791,7 +12789,7 @@ Alan is a Dumbass!!!!1
 
 You've Done it!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 ALAN IS A DUMBASS!!!!!!!!!!!!!!!!!!!!!!!!!
-||
+![pepe](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/025e01dc-ae37-451a-852f-3bc46d6bf3c5)
 ||
 ||
 ||
