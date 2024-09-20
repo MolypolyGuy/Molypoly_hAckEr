@@ -24,9 +24,9 @@ https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/9c6e7f44-4fb1-42
 
 
 DDoS!!!
-
+https://www.itmop.com/downinfo/140439.html
 https://molypolyguy.github.io/Molypoly_hAckEr/
-
+https://www.52pojie.cn/thread-1569939-1-1.html
 My website https://github.com/MolypolyGuy/MolypolyGuy/
 
 Little yangpei will be banned from this!!!!!!!!!!!!!!!!!!!
