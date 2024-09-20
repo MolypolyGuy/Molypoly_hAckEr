@@ -20,7 +20,7 @@ https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/9c6e7f44-4fb1-42
 - Fun fact: I am stil a kid!
 - My Pen-testing PC is a OS.
 
-*****************Every one from P.O.O.P Companycould acess this page*****************
+*****************Every one from P.O.O.P Company could acess this page*****************
 
 
 DDoS!!!
@@ -30,9 +30,7 @@ https://molypolyguy.github.io/Molypoly_hAckEr/
 My website https://github.com/MolypolyGuy/MolypolyGuy/
 
 Little yangpei will be banned from this!!!!!!!!!!!!!!!!!!!
-Hahahai
-JIJI
-ucode
+
 what is your favorite class?
 
 
