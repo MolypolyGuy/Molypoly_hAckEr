@@ -24,29 +24,60 @@ https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/9c6e7f44-4fb1-42
 
 导弹密码:GTX690
 DDoS, Virus sample links (other links/repos would be stored in my github dashboard.):
+
 https://bbs.kafan.cn/thread-2271333-1-1.html
+
 https://www.itmop.com/downinfo/140439.html
+
 https://molypolyguy.github.io/Molypoly_hAckEr/
+
 https://www.52pojie.cn/thread-1569939-1-1.html
+
 https://github.com/MolypolyGuy/MolypolyGuy/
+
 https://virusshare.com
+
 https://wwx.lanzoui.com/iIcYHljspmf
+
 https://www.malware-traffic-analysis.net/2020/12/15/index.html
+
 https://beta.virusbay.io/sample/browse
+
 https://bazaar.abuse.ch/browse
+
 https://bbs.kafan.cn/thread-2175967-1-1.html
+
 https://bbs.kafan.cn/thread-627877-1-1.html
+
 https://amdradeonrin.github.io/MIKU/virus!/index.html
+
 https://bbs.kafan.cn/forum-31-1.html
+
 https://bbs.kafan.cn/forum-31-1.html
+
 https://bbs.kafan.cn/thread-627877-1-1.html
+
 https://malshare.com//
+
 https://groups.google.com/access-error?continue=https://groups.google.com/g/mobilemalware
+
 https://mcedge.118pan.com
 
-Little yangpei will be banned from this!!!!!!!!!!!!!!!!!!!
+https://bbs.kafan.cn/thread-2229714-1-1.html
 
-what is your favorite class?
+https://screamer.wiki/Windows_XP_Horror_Edition
+
+https://blog.csdn.net/ybdesire/article/details/108882365
+
+https://bbs.kafan.cn/thread-2229714-1-1.html
+
+https://www.bilibili.com/read/cv20087383/
+
+https://github.com/onx/CIH
+
+https://github.com/popmedd/Threat_Analysis_Report
+
+Little yangpei will be banned from this!!!!!!!!!!!!!!!!!!!
 
 
 
