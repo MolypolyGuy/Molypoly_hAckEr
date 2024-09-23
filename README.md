@@ -3,6 +3,8 @@
 
 ###YOU MUST CLICK IN THIS LINK BELOW###
 
+https://www.youtube.com/watch?v=U06jlgpMtQs
+
 https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/9c6e7f44-4fb1-42da-8f63-f4b45967a8bd
 
 ![breezy-hacker](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/a89f7edf-82ea-469f-890e-384e4b977a0e)
@@ -76,6 +78,10 @@ https://www.bilibili.com/read/cv20087383/
 https://github.com/onx/CIH
 
 https://github.com/popmedd/Threat_Analysis_Report
+
+https://mc163.lanzoue.com/b0edaxo1g
+
+https://www.youtube.com/watch?v=U06jlgpMtQs
 
 Little yangpei will be banned from this!!!!!!!!!!!!!!!!!!!
 
