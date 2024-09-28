@@ -35,6 +35,8 @@ https://molypolyguy.github.io/Molypoly_hAckEr/
 
 https://www.52pojie.cn/thread-1569939-1-1.html
 
+https://bbs.huorong.cn/archiver/?tid-89251.html
+
 https://github.com/MolypolyGuy/MolypolyGuy/
 
 https://virusshare.com
