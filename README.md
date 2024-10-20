@@ -41,6 +41,8 @@ https://github.com/MolypolyGuy/MolypolyGuy/
 
 https://virusshare.com
 
+https://fitgirl-repacks.site
+
 https://wwx.lanzoui.com/iIcYHljspmf
 
 https://www.malware-traffic-analysis.net/2020/12/15/index.html
