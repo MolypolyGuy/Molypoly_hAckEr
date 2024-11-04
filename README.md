@@ -97,11 +97,5 @@ https://mc163.lanzoue.com/b0edaxo1g
 
 https://www.youtube.com/watch?v=U06jlgpMtQs
 
-Little yangpei will be banned from this!!!!!!!!!!!!!!!!!!!
 
-
-
-ALAN IS A DUMBASS!!!!!!!!!!!!!!!!!!!!!!!!!
-
-![pepe](https://github.com/MolypolyGuy/Molypoly_hAckEr/assets/164135011/025e01dc-ae37-451a-852f-3bc46d6bf3c5)
 
